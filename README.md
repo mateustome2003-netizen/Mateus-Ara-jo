@@ -1,4 +1,4 @@
-# Mateus-Ara-jo
+# Mateus Araujo
 Meu repositório pessoal
 # 👋 Olá, eu sou o Mateus!
 
